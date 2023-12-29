@@ -17,4 +17,4 @@ We may update this Privacy Policy from time to time to reflect changes to our in
 ## Contact Information
 If you have any questions or concerns about this Privacy Policy or our data collection practices, please contact us at zionapps.in+lexilink@gmail.com
 
-This policy was last updated on December 529, 2023.
+This policy was last updated on December 29, 2023.
